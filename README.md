@@ -1,2 +1,2 @@
-# praneethreddypanyam.github.io
+# SaikrishnaBhavana.github.io
 Portfolio
